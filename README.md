@@ -1,4 +1,4 @@
-# Hi there 👋, I'm Vansh Krishali
+# Hi there 👋, I'm Vansh 
 
 ## About Me
 
